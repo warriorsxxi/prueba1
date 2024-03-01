@@ -1,2 +1,2 @@
-pruebas compartir soy master warriors_xxi
-MODIFICACION DE MAIN 
+pruebas compartir soy master warrio 
+MODIFIC2
